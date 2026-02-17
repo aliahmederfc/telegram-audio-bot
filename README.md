@@ -1,1 +1,0 @@
-# ahmed-dizr-bot
